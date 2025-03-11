@@ -340,7 +340,7 @@ We’d love to hear from you! Whether you have a question, suggestion, or issue 
    - [Open an Issue](https://github.com/Ajaychaurasiya)
 
 2. **Email**: Reach out to us via email at:
-   - **satendrakumarparteti.work@gmail.com** 
+   - **ajaychaurasiya666666@gmail.com** 
 
 3. **Social Media**:
    - **Instagram**: [@_ajaychaurasiya](https://www.instagram.com/)
